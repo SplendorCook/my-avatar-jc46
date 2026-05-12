@@ -1,4 +1,4 @@
-#  
+#  elite Scripts for grow a garden offers the most advanced grow a garden Script, with anti-ban and unlimited stamina. Perfect for dominating any match.
 
 
 
